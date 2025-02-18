@@ -1,1 +1,1 @@
-
+Dacked is the personal blog of writer Sean Tubo. It is half articles inspired by some of my favorite authors and creators, intended for reading by an outside audience, half personal-informal work, and half anything else I want to make. It is an unconstrained, undefined, box that my writing can be put into and an opportunity to share that work with the world. 
