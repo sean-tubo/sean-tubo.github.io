@@ -1,4 +1,4 @@
-##A Barbie Retrospective: Two Years Later
+## A Barbie Retrospective: Two Years Later
 
 I’ll be honest, I am not a particularly attentive movie viewer. I can pick up themes, but only in retrospect. Small details slip my eye. Plot twists always work on me. I normally just let whatever I’m watching wash over me. But in the summer of 23’ when I watched the Barbie movie in theatres, I was sitting in rapt attention. The cultural discussion already brewing around Barbie was that there would be discourse (and there was some) and I wanted to be on top of it. 
 
